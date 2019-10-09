@@ -11,9 +11,13 @@ Put your name in the Team Section and comment
 
 -Kayla Schroeder
 
+-Allison Ocelo
+
 ## Comments
 
 -I like sushi
 
 -Not really sure what to say, but here's my comment!
+
+-One of my favorite movies is Ocean's Eleven and I like pasta :)
 
